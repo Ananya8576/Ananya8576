@@ -8,4 +8,4 @@
 
 💪🏽 Research Interests in the field of Computational Linguistics, Onco-Biology
 
-Leading the [NUS Statistics and Data Science Society](https://sites.google.com/view/nussds?pli=1) as the Vice President since 2021
+🎯 Leading the [NUS Statistics and Data Science Society](https://sites.google.com/view/nussds?pli=1) as the Vice President since 2021
