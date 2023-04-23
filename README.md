@@ -7,3 +7,5 @@
 💻 Strong Interest in Prediction Analysis and Modelling and it's applications in the field of Finance
 
 💪🏽 Research Interests in the field of Computational Linguistics, Onco-Biology
+
+Leading the [NUS Statistics and Data Science Society](https://sites.google.com/view/nussds?pli=1) as the Vice President since 2021
