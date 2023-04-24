@@ -1,4 +1,4 @@
-### Data Scientist / Data Engineer / Data Analyst
+### Data Scientist / Data Analyst / Data Engineer / Data Consultant
 
 🎓 Final Year student at [National University of Singapore](https://www.stat.nus.edu.sg/) majoring in Data Science and Analytics with Second Major in Innovation and Design Programme 
 
